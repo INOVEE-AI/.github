@@ -9,7 +9,9 @@
 
 ## 📢 Contact Us  
 🔹 If you’re a **developer, researcher, or industry expert** interested in collaborating, please **reach out** via **[email](info@inovee.ai)** or **[LinkedIn](https://www.linkedin.com/company/inovee-ai)**
+
 🔹 For **business inquiries, partnerships, or investment opportunities**, contact us at **[email](info@inovee.ai)**.
+
 🔹 Stay updated with our work on **[LinkedIn](https://www.linkedin.com/company/inovee-ai)**.  
 
 
