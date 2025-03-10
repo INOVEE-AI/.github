@@ -4,7 +4,7 @@
 ![image](https://github.com/user-attachments/assets/89a6e39a-b7d9-448a-acc5-4454198fa4cc)
 
 ### 🔥 Why It Matters  
-![image](https://github.com/user-attachments/assets/e9a74b7c-be29-4f95-bb12-7b89b66eef28)
+![image](https://github.com/user-attachments/assets/c866d3f5-a7b3-4966-a55a-b8f1368dbc18)
 
 ♻️ **Energy-efficient buildings** are in high demand, as regulatory pressures, high energy prices and financial incentives push for **decarbonization and ESG compliance**.  
 
