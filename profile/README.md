@@ -1,5 +1,6 @@
 # ![image](https://github.com/user-attachments/assets/6bae86be-7b54-41ed-81df-49af9bfe97c9) Innovating Energy Efficiency in Commercial Buildings  
-![image](https://github.com/user-attachments/assets/89a6e39a-b7d9-448a-acc5-4454198fa4cc)
+![image](https://github.com/user-attachments/assets/85d13255-358b-4e0b-93f9-c23ff5a55b1f)
+
 
 ## 🔥 Why It Matters  
 ![image](https://github.com/user-attachments/assets/dae1ea13-18be-4bb5-a65e-a5d4d59abb83)
