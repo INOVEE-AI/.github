@@ -1,6 +1,6 @@
-![image](https://github.com/user-attachments/assets/f8327021-a535-470e-956a-d5427e694d24)
+![image](https://github.com/user-attachments/assets/6bae86be-7b54-41ed-81df-49af9bfe97c9)
 
-## 🌍 Revolutionizing Energy Efficiency in Commercial Buildings  
+## 🌍 Innovating Energy Efficiency in Commercial Buildings  
 
 ![image](https://github.com/user-attachments/assets/7a28cced-fbcd-47a4-a8e2-a326d226dc34)
 
