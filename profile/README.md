@@ -3,8 +3,6 @@
 
 
 ## 🔥 Why It Matters  
-![image](https://github.com/user-attachments/assets/dae1ea13-18be-4bb5-a65e-a5d4d59abb83)
-
 ♻️ **Energy-efficient buildings** are in high demand, as regulatory pressures, high energy prices and financial incentives push for **decarbonisation and ESG compliance**.  
 
 ## 📢 Contact Us  
